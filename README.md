@@ -1,8 +1,1 @@
 # MONKEBoiGaming.github.io
-
-
-
-
-
-
-pog
